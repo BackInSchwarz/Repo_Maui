@@ -1,3 +1,3 @@
 # Happy Chinese Valentines Day!
 
-## Your husband Lei loves so much!
+## Your husband Lei loves you so much!
